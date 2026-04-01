@@ -1,4 +1,4 @@
-
+Free secr Scripts for dandys world - tele and no-clip brings you the best free scripts for dandys world, featuring tele and no-clip. Our mission is to empower players with the resources they need to excel. Say goodbye to paywalls and hello to unlimited possibilities.
 
 
 ---
